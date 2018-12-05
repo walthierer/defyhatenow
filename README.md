@@ -4,12 +4,12 @@
 https://defyhatenow.net/
 
 #defyhatenow – @defyhatenow – https://defyhatenow.net/
-https://facebook.com/defyhatenow/
-https://twitter.com/defyhatenow
-https://youtube.com/channel/UCo01iA_hsQ9H4zHW3E45MsA
-https://soundcloud.com/user-796361206
-https://instagram.com/defyhatenow_/
-https://linkedin.com/company/defyhatenow/about/
+- https://facebook.com/defyhatenow/
+- https://twitter.com/defyhatenow
+- https://youtube.com/channel/UCo01iA_hsQ9H4zHW3E45MsA
+- https://soundcloud.com/user-796361206
+- https://instagram.com/defyhatenow_/
+- https://linkedin.com/company/defyhatenow/about/
 
 
 ## Support us at https://openculture.agency/support-us/
