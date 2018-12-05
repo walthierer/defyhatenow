@@ -4,3 +4,44 @@
 https://defyhatenow.net/
 
 Support our crowdfunding campaign at https://betterplace.org/p63347
+
+
+### Impact: Over the four years the project managed to:
+- Create awareness & encourage a South Sudanese discourse on hate speech among media as well as civil society actors
+- Build a network among grassroots CSOs in South Sudan and Diaspora communities in Kenya and Uganda
+Strengthened & build capacities with regard to media literacy, technical media skills & fact checking, ethical journalism as well as hate speech younter action
+- Initiate activities to inspire reconciliation 
+- Connect South Sudanese diaspora through online and offline campaigns
+
+### Hundreds of offline trainings and workshops; on the following topics
+- Responsible use of Social Media
+- Fact checking: How to Identify fake news online
+- Mitigating hate speech online and offline
+- Gender Equality & GoGirlsICT
+- Ethical Journalism & Blogging
+
+### Press coverage on national & international on radio, TV and in newspapers: defyhatenow.net/press/ 
+Including Juba Monitor, Al Jazeera, Radio Miraya, Deutsche Welle (DW), VoA (Voice of America)
+
+### Media releases
+#DEFY - the film tells the story of the fictional senior politician Honourable David’s new found passion for social media and the risks that come with using these platforms to spread propaganda and rumours.
+
+Online campaigns: #defyhatenow - #PeaceVillage - #Peace4All - #ThinkB4UClick - #HateFreeSouthSudan
+
+Music Videos: #Peace4All - #thinkB4UClick - Kifaya
+
+Soundbites: https://soundcloud.com/user-796361206
+
+### #defyhatenow Social Media Hate Speech Mitigation Field Guide (Offline package)
+- Large Poster & Educational Game: 'Quick reference' tips and tools 
+- Guidebook (140 pages): Detailed information for workshop facilitators & training resources
+- Handouts: Selection of handouts and exercises to photocopy and use in workshops
+- A5 Cards: 10 Concept Cards to facilitate group discussion in workshops
+- A2 Posters (Series of 5): Concept illustrations to use as visual discussion guides & prompts
+- USB Stick with video, audio & external resources / Pen / Post-it notes
+
+All materials are available online for download at defyhatenow.net/field-guide/
+The team is currently developing a free and interactive online course.
+
+
+The #defyhatenow website serves as an information hub around the topic of online and offline hate speech mitigation, including additional resources and information materials at defyhatenow.net/resources/ 
