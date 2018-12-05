@@ -3,7 +3,7 @@
 
 https://defyhatenow.net/
 
-Support our crowdfunding campaign at https://betterplace.org/p63347
+Support us at https://openculture.agency/support-us/
 
 
 ### Impact: Over the four years the project managed to:
@@ -40,7 +40,7 @@ Soundbites: https://soundcloud.com/user-796361206
 - A2 Posters (Series of 5): Concept illustrations to use as visual discussion guides & prompts
 - USB Stick with video, audio & external resources / Pen / Post-it notes
 
-All materials are available online for download at defyhatenow.net/field-guide/
+### All materials are available online for download at defyhatenow.net/field-guide/
 The team is currently developing a free and interactive online course.
 
 
