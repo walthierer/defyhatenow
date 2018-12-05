@@ -54,3 +54,6 @@ The team is currently developing a free and interactive online course.
 
 
 The #defyhatenow website serves as an information hub around the topic of online and offline hate speech mitigation, including additional resources and information materials at defyhatenow.net/resources/ 
+
+
+### From 2015 to 2018 #defyhatenow was an initiative to combat social media hate speech by the r0g_agency for open culture and critical transformation, Berlin, funded by the ifa – Institut für Auslandsbeziehungen (zivik) with means of the German Federal Foreign Office (Auswärtiges Amt)."
