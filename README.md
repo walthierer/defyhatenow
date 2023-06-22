@@ -31,7 +31,7 @@ Strengthened & build capacities with regard to media literacy, technical media s
 - Gender Equality & GoGirlsICT
 - Ethical Journalism & Blogging
 
-### Press coverage on national & international on radio, TV and in newspapers: defyhatenow.net/press/ 
+### Press coverage on national & international on radio, TV and in newspapers: https://defyhatenow.net/press/ 
 Including Juba Monitor, Al Jazeera, Radio Miraya, Deutsche Welle (DW), VoA (Voice of America)
 
 ### Media releases
@@ -51,11 +51,11 @@ Soundbites: https://soundcloud.com/user-796361206
 - A2 Posters (Series of 5): Concept illustrations to use as visual discussion guides & prompts
 - USB Stick with video, audio & external resources / Pen / Post-it notes
 
-### All materials are available online for download at https://defyhatenow.net/field-guide/
+### All materials are available online for download at https://defyhatenow.org/field-guide/
 The team is currently developing a free and interactive online course.
 
 
-The #defyhatenow website serves as an information hub around the topic of online and offline hate speech mitigation, including additional resources and information materials at defyhatenow.net/resources/ 
+The #defyhatenow website serves as an information hub around the topic of online and offline hate speech mitigation, including additional resources and information materials at https://defyhatenow.org/resources/ 
 
 
 ### From 2015 to 2018 #defyhatenow was an initiative to combat social media hate speech by the r0g_agency for open culture and critical transformation, Berlin, funded by the ifa – Institut für Auslandsbeziehungen (zivik) with means of the German Federal Foreign Office (Auswärtiges Amt)."
