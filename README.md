@@ -10,6 +10,9 @@ https://defyhatenow.org/ – #defyhatenow – @defyhatenow
 - https://instagram.com/defyhatenow_/
 - https://linkedin.com/company/defyhatenow/about/
 
+## Use Cases
+- [South Sudan](/SOUTH-SUDAN/) 
+- [Cameroon](/CAMEROON/)
 
 ## Support us at https://openculture.agency/support-us/
 
